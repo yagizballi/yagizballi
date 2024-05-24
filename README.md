@@ -16,8 +16,6 @@
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/ya%C4%9F%C4%B1z-ball%C4%B1-62994a264/](https://www.linkedin.com/in/ya%C4%9F%C4%B1z-ball%C4%B1-62994a264/)
 
-- ⚡ Fun fact **31**
-
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/yağız ballı" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="yağız ballı" height="30" width="40" /></a>
