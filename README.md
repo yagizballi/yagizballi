@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **yagizballi0@gmail.com**
 
-- 📄 Know about my experiences [https://www.linkedin.com/in/yagız-ballı/](https://www.linkedin.com/in/yagizballi)](https://www.linkedin.com/in/ya%C4%9F%C4%B1z-ball%C4%B1-62994a264/)
+- 📄 Know about my experiences [https://www.linkedin.com/in/yagiz-balli/](https://www.linkedin.com/in/yagizballi)](https://www.linkedin.com/in/ya%C4%9F%C4%B1z-ball%C4%B1-62994a264/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
